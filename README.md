@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with future questions.
 - 💬 Ask me about games, music, anime.
 - 📫 How to reach me: yangbri1@msu.edu
-- 😄 Pronouns: N/A -- he/him/his?
+- 😄 Pronouns: he/him/his?
 - ⚡ Fun fact: Lost spectacularly in Starcraft 2 against a pro player.
 
 >
